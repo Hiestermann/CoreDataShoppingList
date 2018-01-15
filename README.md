@@ -1,4 +1,4 @@
 # CoreDataShoppingList
 
 
-![](https://gfycat.com/LeftPeacefulDodo)
+![]https://thumbs.gfycat.com/LeftPeacefulDodo-size_restricted.gif)
